@@ -14,4 +14,4 @@
 ---
 
 ## 📫 Vamos nos conectar!
-- [LinkedIn](www.linkedin.com/in/danilo-moreti-3244791a2)   
+- [LinkedIn](www.linkedin.com/in/danilo-moreti-3244791a2/)   
